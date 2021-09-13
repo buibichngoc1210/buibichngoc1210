@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @buibichngoc1210
+- 👀 I’m interested in Digital Product/ Data/ Business Intelligence
+- 🌱 I’m currently learning Data
+- 💞️ I’m looking to collaborate on Data
